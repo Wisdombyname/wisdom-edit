@@ -1,0 +1,2 @@
+# wisdom-edit
+Good newa
